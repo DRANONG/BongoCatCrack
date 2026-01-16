@@ -1,3 +1,6 @@
+![Bongo Cat Crack](https://i.postimg.cc/y63drC0M/izobrazenie.png)
+
+
 # 🐾 Bongo Cat - Full Unlocked Version
 
 This repository contains the modified version of **Bongo Cat**, featuring fully unlocked content and premium features.
