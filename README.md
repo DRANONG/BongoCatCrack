@@ -17,4 +17,4 @@ This repository contains the modified version of **Bongo Cat**, featuring fully 
 4. **Copy and Replace** the downloaded file into the Managed folder.
 5. Launch** the game and enjoy!
 
-Cracked By Camellia & [PatchTeam](https://t.me/patchteam1337)
+Cracked By [Camellia](https://t.me/SHARKofficala) & [PatchTeam](https://t.me/patchteam1337)
